@@ -1,1 +1,1 @@
-A short introduction about your team
+The New Generation of Staking Pool.
